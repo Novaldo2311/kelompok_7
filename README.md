@@ -1,3 +1,3 @@
 # kelompok_7
 tes
-adelio ganteng
+adelio pler
